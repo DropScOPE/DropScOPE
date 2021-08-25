@@ -1,4 +1,4 @@
-- 👋 Hi, I’m -DroppxDevs-
+- 👋 Hi, I’m -DroppxDevs- ORRR DropScOPE ;O
 - 👀 I’m interested in Creating and using other peoples scripts for games such as GTA AND RED DEAD!!
 - 🌱 I’m currently learning how to code LUA & JAVA even better then I can!
 - 📫 How to reach me I have a discord:-Ain't DROPPX-#9225
